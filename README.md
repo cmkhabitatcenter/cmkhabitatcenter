@@ -1,4 +1,9 @@
-## Hi there 👋
+## CMK Habitat Centre – Best Hotel in Kochi Near Le Meridien, Lakeshore Hospital & Crowne Plaza 👋
+
+- Set within a largely commercial area, this informal hotel is a 3-minute walk from the Arjuna Backwaters, 3 km from Tirunettur train station, and 17 km from Puthenthodu Beach along the Laccadive Sea.
+- Unassuming rooms come with flat-screen TVs and en suite wet rooms. Upgraded rooms with wood-panelled walls add kitchenettes. Room service is available.
+- Wi-Fi, breakfast and limited parking are offered. There's a garden terrace, and a back-up generator is on-site.
+
 
 ![Image](https://github.com/user-attachments/assets/a13cad18-8092-4507-b82f-572a3cd7a16f)
 ![Image](https://github.com/user-attachments/assets/7633a0f5-48d8-4260-9681-f9ad95e216d2)
